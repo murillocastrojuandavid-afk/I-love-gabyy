@@ -1,2 +1,0 @@
-# I-love-gabyy
-Amor.
